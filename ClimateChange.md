@@ -1,0 +1,15 @@
+### Report from WMO
+- WMO Secretary General Petteri Taalas
+- World Meteorlogical Organisation's State of the Climate report released at [United Nations Climate Change conference at Bonn](https://www.theguardian.com/environment/2017/nov/05/the-cop23-climate-change-summit-in-bonn-and-why-it-matters)
+- 1981-2010 used as baseline
+- Global mean annual temperature between Jan-Sep 2017, 1.1 degree Celsius above pre industrial era
+- 2016 warmest year on record (powerful el-nino) followed by 2017 and 2015
+- Extreme high impact events weather events due to climate change
+  - Hurricanes in Carribean & Atlantic reachingas far as Ireland
+  - Floods
+  - Heat waves
+  - drought in east africa
+- FAO Assessment: Such events affect te food security of people, since agriculture accounts for 26% of all damages related to storms, floods & drought
+- India
+  - Monsoonal flooding
+  - 2017 June-Spet monsoon rain 5% below average
